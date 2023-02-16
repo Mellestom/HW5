@@ -1,3 +1,0 @@
-Tommy Melles
-
-Chicago Bulls
